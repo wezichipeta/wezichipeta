@@ -1,4 +1,4 @@
-### Hi there. I am Dr. Wezi B. Chipeta, DBA., Entrepreneur, Professonal Electrical Engineer, Project Management Professional👋
+### Hi there. I am Dr. Wezi B. Chipeta, DBA., Entrepreneur, Professional Electrical Engineer, Project Management Professional👋
 <!--
 **wezichipeta/wezichipeta** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 
